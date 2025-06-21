@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.imgur.com/BidDNLA.png" width="250px">
+  <img src="https://files.catbox.moe/tr9nfs.png" width="280px">
   </p>
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=dyingmall&label=bunnies&color=2c2b27&style=plastic"> </p>
