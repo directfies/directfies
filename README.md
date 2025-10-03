@@ -6,4 +6,5 @@
 <p align="center"> <sub>Smells like old saxophone reeds.<sub> </p>
 <p align="center"> <a href="https://rentry.co/rerolling">PT RENTRY</a> • <a href="https://rentry.co/azurewraath">MAIN RENTRY</a> • <a href="https://dyingmall.atabook.org/">ATABOOK</a> • <a href="https://script.straw.page/">STRAWPAGE</a> </p>
 <p align="center"> <sub>c+h encouraged always</sub>
+<br><sub>usually just afking 90% of the time, alot of the times i won't see whispers until way later</sub>
 </p>
