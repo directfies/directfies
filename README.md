@@ -7,4 +7,5 @@
 <p align="center"> <a href="https://rentry.co/rerolling">PT RENTRY</a> • <a href="https://rentry.co/directoryusers">MAIN RENTRY</a> • <a href="https://script.straw.page/">STRAWPAGE</a> • <a href="https://orchestraful.atabook.org/">ATABOOK</a> • <a href="https://guns.lol/orchestraful">GUNS.LOL</a>
 <p align="center"> <sub>c+h encouraged always</sub>
 <br><sub>usually just offtab 90% of the time, alot of the times i won't see whispers until way later</sub>
+<br><sub>please stop copying my skins or my boyfriend's</sub>
 </p>
