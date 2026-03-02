@@ -11,8 +11,9 @@
 <br><sub>usually just offtab 90% of the time, alot of the times i won't see whispers until way later</sub>
 <br><sub>please stop copying my skins or my boyfriend's</sub>
   <br><br>
-  <img src="https://files.catbox.moe/g3xq0p.webp" width="50px">
-  <br><sub>everyone this is my boyfriend. he has come to check out my profile. be nice to him</sub>
+  <img src="https://files.catbox.moe/ie6goa.png" width="60px">
+  <br><sub>everyone this is my boyfriend. i am holding him up like a little key. be nice to him</sub>
+  <br><sub>art by <a href="https://x.com/gelasticTaurine/status/2028375876501733676">gelasticTaurine</sub>
 <br><br>⋅──────────────────⊱ ♫ ⊰──────────────────⋅
 </p>
 <p align="center">
