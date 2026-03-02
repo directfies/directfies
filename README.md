@@ -10,6 +10,9 @@
 <br><sub>c+h always encouraged</sub>
 <br><sub>usually just offtab 90% of the time, alot of the times i won't see whispers until way later</sub>
 <br><sub>please stop copying my skins or my boyfriend's</sub>
+  <br><br>
+  <img src="https://files.catbox.moe/g3xq0p.webp" width="50px">
+  <br><sub>everyone this is my boyfriend. he has come to check out my profile. be nice to him</sub>
 <br><br>⋅──────────────────⊱ ♫ ⊰──────────────────⋅
 </p>
 <p align="center">
