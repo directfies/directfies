@@ -13,9 +13,8 @@
 <br><sub>usually just offtab 90% of the time, alot of the times i won't see whispers until way later</sub>
 <br><sub>please stop copying my skins or my boyfriend's</sub>
   <br><br>
-  <img src="https://files.catbox.moe/ie6goa.png" width="60px"> <img src="https://cdn.imgchest.com/files/01a8977f2e7a.gif" width="60px">
+  <img src="https://cdn.imgchest.com/files/50262f837b1b.webp" width="60px"> <img src="https://cdn.imgchest.com/files/01a8977f2e7a.gif" width="60px">
   <br><sub>putting my two <a href="https://artesto.straw.page/">partners</a> next to each other. be nice to <a href="https://f3xabus3rr.straw.page/">them</a></sub>
-  <br><sub>art by <a href="https://x.com/gelasticTaurine/status/2028375876501733676">gelasticTaurine</sub>
 <br><br>⋅──────────────────⊱ ♫ ⊰──────────────────⋅
 </p>
 <p align="center">
