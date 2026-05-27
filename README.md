@@ -11,7 +11,7 @@
 <br><br><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Courier+Prime&weight=500&size=15&duration=3400&pause=800&color=CA1C1C&center=true&width=443&height=20&lines=What+do+I+know+about+love%3F;How+can+I+recreate+what+I've+never+had%3F;All+that+I+know+is+that+I+must+keep+you+thriving;If+nutrients+are+what+you+lack;I+will+water+you+with+every+drop+of+blood+I+have;But+now+I+know+that;Sacrifice+is+the+easy+path;My+absence+cannot+ever+change+the+fact;I+wanted+the+very+best+for+you%2C+believe+me;Our+threads+in+red+can+never+be+cut;And+S+is+not+for+sayonara;Will+you+forgive+me+at+last%3F" alt="Typing SVG" /></a>
 <br><sub>c+h always encouraged</sub>
 <br><sub>usually just offtab 90% of the time, alot of the times i won't see whispers until way later.</sub>
-<br><sub>please stop copying my skins or my boyfriend's. used to be dyingmall, orchestraful, ultdirk</sub>
+<br><sub>please stop copying my skins or my boyfriend's. used to be the original dyingmall, orchestraful, ultdirk</sub>
   <br><br>
   <img src="https://cdn.imgchest.com/files/50262f837b1b.webp" width="60px">
   <br><sub>putting my <a href="https://artesto.straw.page/">partner</a> here. be nice to him
