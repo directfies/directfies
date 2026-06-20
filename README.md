@@ -3,8 +3,8 @@
   <br><br>⋅──────────────────⊱ ♫ ⊰──────────────────⋅
   </p>
 <p align="center">
-  <img src="https://cdn.imgchest.com/files/0fac6f9d4585.webp" width="100px">
-<br><br><img src="https://komarev.com/ghpvc/?username=dyingmall&label=UNIVERSES&color=2c2b27&style=plastic">
+  <img src="https://cdn.imgchest.com/files/e53e4baf5901.gif" width="50px">
+<br><br><img src="https://komarev.com/ghpvc/?username=dyingmall&label=SHADOWGUYS&color=2c2b27&style=plastic">
 </p>
 <p align="center"> <sub>From break and ruin, the most beautiful performance begins.<sub> </p>
 <p align="center"> <a href="https://rentry.co/rerolling">PT RENTRY</a> • <a href="https://rentry.co/directsor">MAIN RENTRY</a> • <a href="https://script.straw.page/">STRAWPAGE</a> • <a href="https://solemn.atabook.org/">ATABOOK</a> • <a href="https://guns.lol/directsor">GUNS.LOL</a>
@@ -13,7 +13,7 @@
 <br><sub>usually just offtab 90% of the time, alot of the times i won't see whispers until way later.</sub>
 <br><sub>please stop copying my skins or my boyfriend's. used to be the original dyingmall, orchestraful, ultdirk</sub>
   <br><br>
-  <img src="https://cdn.imgchest.com/files/50262f837b1b.webp" width="60px">
+  <img src="https://cdn.imgchest.com/files/7eb1db73ee88.gif" width="60px">
   <br><sub>putting my <a href="https://artesto.straw.page/">partner</a> here. be nice to him
 <br><br>⋅──────────────────⊱ ♫ ⊰──────────────────⋅
 </p>
