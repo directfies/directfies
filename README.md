@@ -15,7 +15,7 @@ whoa. hey guys. this coding shit is crazy. i updated all of my socials, strawpag
 <br><br><img src="https://komarev.com/ghpvc/?username=dyingmall&label=SHADOWGUYS&color=2c2b27&style=plastic">
 </p>
 <p align="center"> <sub>From break and ruin, the most beautiful performance begins.<sub> </p>
-<p align="center"> <a href="https://rentry.co/rerolling">coming soon</a> • <a href="https://fluffle.cc/wiifies">MAIN FLUFFLE</a> • <a href="https://script.straw.page/">STRAWPAGE</a> • <a href="https://solemn.atabook.org/">ATABOOK</a> • <a href="https://guns.lol/directsor">GUNS.LOL</a>
+<p align="center"> <a href="https://fluffle.cc/spyglassed">PT FLUFFLE</a> • <a href="https://fluffle.cc/wiifies">MAIN FLUFFLE</a> • <a href="https://script.straw.page/">STRAWPAGE</a> • <a href="https://solemn.atabook.org/">ATABOOK</a> • <a href="https://guns.lol/directsor">GUNS.LOL</a>
 <br><br><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com/?font=Courier+Prime&weight=500&size=15&duration=3400&pause=800&color=CA1C1C&center=true&width=443&height=20&lines=What+do+I+know+about+love%3F;How+can+I+recreate+what+I%27ve+never+had%3F;All+that+I+know+is+that+I+must+keep+you+thriving;If+nutrients+are+what+you+lack;I+will+water+you+with+every+drop+of+blood+I+have;But+now+I+know+that;Sacrifice+is+the+easy+path;My+absence+cannot+ever+change+the+fact;I+wanted+the+very+best+for+you%2C+believe+me;Our+threads+in+red+can+never+be+cut;And+S+is+not+for+sayonara;Will+you+forgive+me+at+last%3F" alt="Typing SVG" /></a>
 <br><sub>c+h always encouraged</sub>
 <br><sub>usually just offtab 90% of the time, alot of the times i won't see whispers until way later.</sub>
