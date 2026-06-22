@@ -3,13 +3,13 @@
   <br><br>⋅──────────────────⊱ ♫ ⊰──────────────────⋅
   </p>
 <p align="center">
-  <img src="https://cdn.imgchest.com/files/e53e4baf5901.gif" width="50px">
+  <img src="https://cdn.imgchest.com/files/810a47cb7ec7.png" width="190px">
 
 <div align="center">
 
 <details closed>
-  <summary><sub>6/21/36 update log</sub></summary>
-whoa. hey guys. this coding shit is crazy. i updated all of my socials, strawpage and my infocards... the fluffle links basically. im bringing the deltarune back Hi im snapple!
+  <summary><sub>6/22/36 update log</sub></summary>
+i like defernull tenna. he's here now. i might tweak and do some minor updates to my fluffle and strawpage if i can find more resources for it... or if i stop being lazy but for the time being they're fully finished
 </details>
 
 <br><br><img src="https://komarev.com/ghpvc/?username=dyingmall&label=SHADOWGUYS&color=2c2b27&style=plastic">
@@ -20,8 +20,9 @@ whoa. hey guys. this coding shit is crazy. i updated all of my socials, strawpag
 <br><sub>c+h always encouraged</sub>
 <br><sub>usually just offtab 90% of the time, alot of the times i won't see whispers until way later.</sub>
 <br><sub>please stop copying my skins or my boyfriend's. used to be the original dyingmall, orchestraful, ultdirk</sub>
+  <br> <sub>defernull tenna sprite by @nonamenoraim</sub>
   <br><br>
-  <img src="https://cdn.imgchest.com/files/ad7b9a7b4d2c.png" width="60px"> <img src="https://cdn.imgchest.com/files/3c1531709505.png" width="60px">
+  <img src="https://cdn.imgchest.com/files/44af4d24804f.png" width="190px"><img src="https://cdn.imgchest.com/files/3c1531709505.png" width="80px"><img src="https://cdn.imgchest.com/files/dd128709ec06.png" width="80px">
   <br><sub>putting my <a href="https://artesto.straw.page/">partner</a> here. be nice to him
 <br><br>⋅──────────────────⊱ ♫ ⊰──────────────────⋅
 </p>
